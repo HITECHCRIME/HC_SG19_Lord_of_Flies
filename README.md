@@ -31,6 +31,7 @@ x
 
 ## Notes
 
+- theme research
 
 ## Music Video
 
