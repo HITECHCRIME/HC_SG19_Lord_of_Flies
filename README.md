@@ -1,2 +1,2 @@
-# HC_SG19_lord_of_flies
+# MOTHNODE_ Lord of Flies
 Hitech Crime Single 'Lord of Flies'
