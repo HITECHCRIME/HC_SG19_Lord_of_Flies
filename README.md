@@ -4,11 +4,10 @@ Hitech Crime Single 'Lord of Flies'
 **Listen now:** x
 
 ## Project Data
-Polish rap
 
 **Title:** Lord of Flies / **Featuring:** MOTHNODE
 
-**Production:** Retnik / **Lyrics:** MOTHNODE
+**Production:** x / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
