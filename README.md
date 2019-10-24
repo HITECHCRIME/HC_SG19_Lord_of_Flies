@@ -22,9 +22,17 @@ energy lashing
 
 lord of flies
 lord of flies
+
 drowned in isolation
-turned your eyes white decide if it's
+turned your eyes white 
+so decide if it's time
 survival above all
+
+forgivin' audacity
+made me feel all null
+got charged with 
+assualt on myself
+through giving away my controls
 
 buzzkill
 ```
