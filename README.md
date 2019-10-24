@@ -30,9 +30,15 @@ survival above all
 
 forgivin' audacity
 made me feel all null
-got charged with 
-assualt on myself
-through giving away my controls
+got charged with assualt on myself
+through giving away the controls
+
+putting up with the waves
+made your core go all wrong
+no fixing internals 
+just change status 
+apparatus of state 
+meddling with thoughts
 
 buzzkill
 ```
