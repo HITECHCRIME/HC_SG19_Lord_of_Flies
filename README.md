@@ -22,6 +22,8 @@ energy lashing
 
 lord of flies
 lord of flies
+drowned in isolation
+turned your eyes white decide if it's
 survival above all
 
 buzzkill
