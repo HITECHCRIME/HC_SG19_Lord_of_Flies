@@ -12,7 +12,19 @@ Hitech Crime Single 'Lord of Flies'
 ## Lyrics
 
 ```
-x
+flies buzzing mixed with human chatter
+
+all that we behest
+falling mind into dirt
+real often 
+sitting juice sipping
+energy lashing
+
+lord of flies
+lord of flies
+survival above all
+
+buzzkill
 ```
 
 ## Lyrics Production
